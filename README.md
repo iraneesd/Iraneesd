@@ -3,11 +3,11 @@
  Dr. Jalal Valiallahi  Shahid Rajaee Teacher Training UniversityThe is one of the founder of the board and the chairman of the board of director
 Email: Jvaliallahi@sru.ac.ir           iraneesd@yahoo.com
 presidentE of EESD
-Associate professor in the Environmental  Science Department of Shahid Rajaee Teacher Training University.
+Associate professor in the Environmental Science Department of Shahid Rajaee Teacher Training University.
 https://scholar.google.com/citations?user=v2BZIugAAAAJ&hl=en
-- 🌱 I’m currently besuy on Barbs species of Iran and Enironment issuee
-- 💞️ I’m looking to collaborate on all of resercher ans environmental lover to help us for prompting of our life and health on erth.
-- 📫 How to reach me .by Emaile: iraneesd@yahoo.com
+- 🌱 we are currently besuy on Educational and Enironmental issuee
+- 💞️ we are looking to collaborate on all of resercher ans environmental lover to help us for prompting of our life and health on earth.
+- 📫 How to reach us .by Emaile: iraneesd@yahoo.com
 -
 
 
