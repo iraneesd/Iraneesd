@@ -1,6 +1,8 @@
 ![Fantastic  and EEDS Arm ](https://github.com/user-attachments/assets/829320f3-d796-46ba-bb98-1f2901ccf4c4)
 
 - 👋 Hi, This is the official website of the Scientific Association for Environmental Education and Sustainable Development.SA. of EESD.
+-
+- I invite you to think together and help each other to establish global environmental justice, environmental governance, environmental ethics, peace, social welfare, and social justice. So that the rule of law and respect for the rights of all living beings and humans may be established in the world, and instead of hatred, extremism, terrorism, and foolish differences that threaten human existence through war, environmental destruction, and poverty, let us turn to peace, friendship, love, and affection for humanity and the countless beauties of existence. Let us believe Hafez who said: "The war of seventy-two nations is an excuse, because they did not find the truth, they resorted to myths." Let us find or define and redefine the meaning and truth of life together.
 
 - Please note that the old website of the Scientific Association for Environmental Education and Sustainable Development was as follows:
 
